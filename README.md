@@ -1,1 +1,1 @@
-# under construction
+# ggc47.github.io
